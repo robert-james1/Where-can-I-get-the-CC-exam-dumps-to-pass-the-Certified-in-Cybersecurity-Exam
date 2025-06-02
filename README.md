@@ -1,4 +1,4 @@
-# **Where can I get the CC exam dumps to pass the Certified in Cybersecurity Exam?**
+# **Where can I get the ISC2 CC exam dumps to pass the Certified in Cybersecurity Exam?**
 
 
 ## **1. Introduction**
